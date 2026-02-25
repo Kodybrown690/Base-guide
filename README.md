@@ -29,3 +29,4 @@ here are sone of the lyrics. iput nothing above you uou know i put nothing above
 Arike by kunmie is on the list too.. arike if u leave i go die before the sunset.
 good
 AH SWR I NO GO DULL
+GOD
