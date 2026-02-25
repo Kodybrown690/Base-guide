@@ -9,3 +9,5 @@ with me you gat everthing to loose
 hoise
 please stay with me
 i know i love you so much
+i will write her name in morse code.
+D
