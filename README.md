@@ -27,3 +27,4 @@ BUT WHY IS SHE VERY MORE INTO ME NOW> LIKE WTF WHO CARES
 STAND BY YOU BY  PHEELZ IS ONE OF MY BEST SONGS RN
 here are sone of the lyrics. iput nothing above you uou know i put nothing above you isti
 Arike by kunmie is on the list too.. arike if u leave i go die before the sunset.
+good
