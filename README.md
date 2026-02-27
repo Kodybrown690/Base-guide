@@ -40,3 +40,4 @@ she been commend me
 if she permit me.. come and intrude me
 she go get it up she go get it done
 she dey catch cold in my caddigan
+i go pin her to the wall if she permit me
