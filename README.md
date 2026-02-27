@@ -37,3 +37,4 @@ good to know
 hjko
 old man
 she been commend me
+if she permit me.. come and intrude me
