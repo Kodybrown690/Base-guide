@@ -34,3 +34,4 @@ HOEIP
 AJE I MO GO DULL
 GOIEM
 good to know
+hjko
